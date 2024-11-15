@@ -5,7 +5,6 @@ In the ever-evolving landscape of digital media, a new app is making waves with 
 ## [Go To Download](https://shorturl.at/PMDJN)
 
 ---
-![image](https://github.com/user-attachments/assets/30ad8567-c1a9-4be8-b653-f5ff4a6d3082)
 
 ## **What is Salan Rice 5.0?**
 
